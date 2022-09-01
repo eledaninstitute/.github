@@ -2,8 +2,8 @@
 
 ## ELEDAN INSTITUTE BOOTCAMP SEEKS TO EMPOWER YOU WITH MODERN DAY CODING SKILLS.
 
-## Instead of wasting years preparing to prove your worth on paper,
-## how about you skillup, start making $$$ asap and then see if you're still interested in getting the job.
+## Instead of trying to prove your worth on paper,
+## How about you skillup, start making $$$ asap and then see if you're still interested in getting the job.
 
 ## 🍿 Fun facts
 
